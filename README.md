@@ -1,0 +1,4 @@
+thujeorg
+========
+
+THUJE – Forumi Rinor i Istogut Thuje.org paraqet portalin e pare informativ te llojit te vet ne gjithe Kosove. Ky portal u fillua si nje ide inovative nga 3 nxenes te gjimnazit Haxhi Zekae qe kandiduan me projektin e tyre ne Innovations Lab Kosovo. Nga 100 projekte konkurruese nga I gjithe Rrafshi I Dukagjinit u zgjodhen 10 projekte per kamp dhe qe aty do te zgjidheshin 5 projektet me te mira qe te financoheshin per implementimin e tyre ndersa ne grupin e 5 projekteve me te mira u zgjodh edhe projektI iTHUJE.ORG qe paraqiste projektin e pare te fituar nga komuna e Istogut. Ky portal informativ si qellim kryesor e ka informimin e nxenesve te shkollave te mesme ne Istog te GjimnazitHaxhi Zekadhe shkolles teknike Mithat Frasheri. Me respekt: Dreni Kabashi-Lider, Ermal Bujupaj-Ass Lider, Besart Hasanaj-Ass Lider, Besmir Zekaj-Developer.
